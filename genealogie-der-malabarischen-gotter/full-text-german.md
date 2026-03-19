@@ -56,7 +56,7 @@
 
 ## [Zweites Kapitel. --- Von Isvaras zwei Weiber: Pārvati und Ganga.](#zweites-kapitel-----von-isvaras-zwei-weiber-pārvati-und-ganga-1)
 
-## [Drittes Kapitel. --- Vighnēsvara, Isvaras ältester Sohn.]()
+## [Drittes Kapitel. --- Vighnēsvara, Isvaras ältester Sohn.](#drittes-kapitel-----vighnēsvara-isvaras-ältester-sohn-1)
 
 ---
 
