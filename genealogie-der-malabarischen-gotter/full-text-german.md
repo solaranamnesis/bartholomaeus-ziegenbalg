@@ -58,7 +58,7 @@
 
 ## [Drittes Kapitel. --- Vighnēsvara, Isvaras ältester Sohn.](#drittes-kapitel-----vighnēsvara-isvaras-ältester-sohn-1)
 
-## [Viertes Kapitel. --- Subhramanya mit seinen Frauen Dēvayānai und Valliammen.]()
+## [Viertes Kapitel. --- Subhramanya mit seinen Frauen Dēvayānai und Valliammen.](#viertes-kapitel-----subhramanya-mit-seinen-frauen-dēvayānai-und-valliammen-1)
 
 ---
 
