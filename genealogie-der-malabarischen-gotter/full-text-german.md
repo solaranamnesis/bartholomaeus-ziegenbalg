@@ -60,6 +60,8 @@
 
 ## [Viertes Kapitel. --- Subhramanya mit seinen Frauen Dēvayānai und Valliammen.](#viertes-kapitel-----subhramanya-mit-seinen-frauen-dēvayānai-und-valliammen-1)
 
+## [Fünftes Kapitel. --- Von Vischnu.]()
+
 ---
 
 Sr. Hochwohlgeboren
