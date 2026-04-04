@@ -62,7 +62,7 @@
 
 ## [Fünftes Kapitel. --- Von Vischnu.](#fünftes-kapitel-----von-vischnu-1)
 
-## [Sechstes Kapitel. --- Lakschmi und Bhūmidēvi, Vischnus Weiber.]()
+## [Sechstes Kapitel. --- Lakschmi und Bhūmidēvi, Vischnus Weiber.](#sechstes-kapitel-----lakschmi-und-bhūmidēvi-vischnus-weiber-1)
 
 ---
 
