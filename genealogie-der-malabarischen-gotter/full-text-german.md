@@ -64,7 +64,7 @@
 
 ## [Sechstes Kapitel. --- Lakschmi und Bhūmidēvi, Vischnus Weiber.](#sechstes-kapitel-----lakschmi-und-bhūmidēvi-vischnus-weiber-1)
 
-## [Siebentes Kapitel. --- Vischnus Söhne mit ihren Familien.]()
+## [Siebentes Kapitel. --- Vischnus Söhne mit ihren Familien.](#siebentes-kapitel-----vischnus-söhne-mit-ihren-familien-1)
 
 ---
 
