@@ -70,7 +70,7 @@
 
 ## [Neuntes Kapitel. --- Sarasvati, Brahmas Weib.](#neuntes-kapitel-----sarasvati-brahmas-weib-1)
 
-# [Dritter Teil. --- கிராமதேவதைகள் Grāmadēvatas.]()
+# [Dritter Teil. --- கிராமதேவதைகள் Grāmadēvatas.](#dritter-teil-----கிராமதேவதைகள்-grāmadēvatas-1)
 
 ---
 
