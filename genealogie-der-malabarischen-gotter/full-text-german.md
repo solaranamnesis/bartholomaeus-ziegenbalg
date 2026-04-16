@@ -72,9 +72,9 @@
 
 # [Dritter Teil. --- கிராமதேவதைகள் Grāmadēvatas.](#dritter-teil-----கிராமதேவதைகள்-grāmadēvatas-1)
 
-## [Erstes Kapitel. --- Ayenār mit seinen Weiber: Pūranai und Pudkalai.]()
+## [Erstes Kapitel. --- Ayenār mit seinen Weiber: Pūranai und Pudkalai.](#erstes-kapitel-----ayenār-mit-seinen-weiber-pūranai-und-pudkalai-1)
 
-## [Zweites Kapitel. --- Ellammen und Māriammen.]()
+## [Zweites Kapitel. --- Ellammen und Māriammen.](#zweites-kapitel-----ellammen-und-māriammen-1)
 
 ---
 
