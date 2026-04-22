@@ -78,7 +78,7 @@
 
 ## [Drittes Kapitel. --- Ankālammen, Vira-Bhadra und Periyatambirān.](#drittes-kapitel-----ankālammen-vira-bhadra-und-periyatambirān-1)
 
-## [Viertes Kapitel. --- Bhadra-Kāli und Aghōram.]()
+## [Viertes Kapitel. --- Bhadra-Kāli und Aghōram.](#viertes-kapitel-----bhadra-kāli-und-aghōram-1)
 
 ---
 
