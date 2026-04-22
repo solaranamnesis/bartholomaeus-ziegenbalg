@@ -80,7 +80,7 @@
 
 ## [Viertes Kapitel. --- Bhadra-Kāli und Aghōram.](#viertes-kapitel-----bhadra-kāli-und-aghōram-1)
 
-## [Fünftes Kapitel. --- Püdāri, Chāmunda und Durga.]()
+## [Fünftes Kapitel. --- Püdāri, Chāmunda und Durga.](#fünftes-kapitel-----püdāri-chāmunda-und-durga-1)
 
 ---
 
