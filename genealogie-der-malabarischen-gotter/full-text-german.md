@@ -82,7 +82,7 @@
 
 ## [Fünftes Kapitel. --- Püdāri, Chāmunda und Durga.](#fünftes-kapitel-----püdāri-chāmunda-und-durga-1)
 
-## [Sechstes Kapitel. --- Teufel und Riesen: Pēgöl, Bhūtas, Rākschasas und Asuras.]()
+## [Sechstes Kapitel. --- Teufel und Riesen: Pēgöl, Bhūtas, Rākschasas und Asuras.](#sechstes-kapitel-----teufel-und-riesen-pēgöl-bhūtas-rākschasas-und-asuras-1)
 
 ---
 
