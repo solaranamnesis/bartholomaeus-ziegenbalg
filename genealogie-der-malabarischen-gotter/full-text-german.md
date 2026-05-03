@@ -84,9 +84,9 @@
 
 ## [Sechstes Kapitel. --- Teufel und Riesen: Pēgöl, Bhūtas, Rākschasas und Asuras.](#sechstes-kapitel-----teufel-und-riesen-pēgöl-bhūtas-rākschasas-und-asuras-1)
 
-# [Vierter Teil. --- Die Dēvas mit den Propheten, Götterdienern und Welthütern.]()
+# [Vierter Teil. --- Die Dēvas mit den Propheten, Götterdienern und Welthütern.](#vierter-teil-----die-dēvas-mit-den-propheten-götterdienern-und-welthütern-1)
 
-## [Erstes Kapitel. --- Die Dēvas mit Dēvēndra, Indrāni und Chitraputra.]()
+## [Erstes Kapitel. --- Die Dēvas mit Dēvēndra, Indrāni und Chitraputra.](#erstes-kapitel-----die-dēvas-mit-dēvēndra-indrāni-und-chitraputra-1)
 
 ---
 
