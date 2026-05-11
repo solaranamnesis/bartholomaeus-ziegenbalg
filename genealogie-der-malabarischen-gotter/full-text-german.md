@@ -88,7 +88,7 @@
 
 ## [Erstes Kapitel. --- Die Dēvas mit Dēvēndra, Indrāni und Chitraputra.](#erstes-kapitel-----die-dēvas-mit-dēvēndra-indrāni-und-chitraputra-1)
 
-## [Zweites Kapitel. --- Von den 48,000 Propheten oder Rischis.]()
+## [Zweites Kapitel. --- Von den 48,000 Propheten oder Rischis.](#zweites-kapitel-----von-den-48000-propheten-oder-rischis-1)
 
 ---
 
