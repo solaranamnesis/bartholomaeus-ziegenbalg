@@ -90,6 +90,10 @@
 
 ## [Zweites Kapitel. --- Von den 48,000 Propheten oder Rischis.](#zweites-kapitel-----von-den-48000-propheten-oder-rischis-1)
 
+## [Dritte Kapitel. --- Von den Bedienten und Musikanten der Götter.]()
+
+## [Viertes Kapitel. --- Die Aschtadikpalakas oder acht Welthüter.]()
+
 ---
 
 Sr. Hochwohlgeboren
