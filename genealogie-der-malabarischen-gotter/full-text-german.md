@@ -76,7 +76,7 @@
 
 ## [Zweites Kapitel. --- Ellammen und Māriammen.](#zweites-kapitel-----ellammen-und-māriammen-1)
 
-## [Drittes Kapitel. --- Ankālammen, Vīra-Bhadra und Periyatambirān.](#drittes-kapitel-----ankālammen-vira-bhadra-und-periyatambirān-1)
+## [Drittes Kapitel. --- Ankālammen, Vīra-Bhadra und Periyatambirān.](#drittes-kapitel-----ankālammen-vīra-bhadra-und-periyatambirān-1)
 
 ## [Viertes Kapitel. --- Bhadra-Kāli und Aghōram.](#viertes-kapitel-----bhadra-kāli-und-aghōram-1)
 
