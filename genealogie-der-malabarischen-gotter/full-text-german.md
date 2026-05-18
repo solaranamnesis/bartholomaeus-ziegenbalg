@@ -52,11 +52,11 @@
 
 # [Zweiter Teil. --- Die மும்மூர்த்திகள் Mummūrtis.](#zweiter-teil-----die-மும்மூர்த்திகள்-mummūrtis-1)
 
-## [Erstes Kapitel. --- Īsvara, der Herr.](#erstes-kapitel-----isvara-der-herr-1)
+## [Erstes Kapitel. --- Īsvara, der Herr.](#erstes-kapitel-----īsvara-der-herr-1)
 
-## [Zweites Kapitel. --- Von Īsvaras zwei Weiber: Pārvati und Ganga.](#zweites-kapitel-----von-isvaras-zwei-weiber-pārvati-und-ganga-1)
+## [Zweites Kapitel. --- Von Īsvaras zwei Weiber: Pārvati und Ganga.](#zweites-kapitel-----von-īsvaras-zwei-weiber-pārvati-und-ganga-1)
 
-## [Drittes Kapitel. --- Vighnēsvara, Īsvaras ältester Sohn.](#drittes-kapitel-----vighnēsvara-isvaras-ältester-sohn-1)
+## [Drittes Kapitel. --- Vighnēsvara, Īsvaras ältester Sohn.](#drittes-kapitel-----vighnēsvara-īsvaras-ältester-sohn-1)
 
 ## [Viertes Kapitel. --- Subhramanya mit seinen Frauen Dēvayānai und Valliammen.](#viertes-kapitel-----subhramanya-mit-seinen-frauen-dēvayānai-und-valliammen-1)
 
