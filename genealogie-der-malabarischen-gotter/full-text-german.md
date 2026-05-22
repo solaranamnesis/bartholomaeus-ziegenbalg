@@ -96,7 +96,7 @@
 
 ## [Fünftes Kapitel. --- Äusserliche Beschaffenheit der vornehmsten Feste.](#fünftes-kapitel-----äusserliche-beschaffenheit-der-vornehmsten-feste-1)
 
-## [Sechstes Kapitel. --- Von den Opfern.]()
+## [Sechstes Kapitel. --- Von den Opfern.](#sechstes-kapitel-----von-den-opfern-1)
 
 ---
 
