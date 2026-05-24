@@ -1885,7 +1885,7 @@ SOLI DEO GLORIA!
 
 ---
 
-[Tamulische Buchstabirtafel.]()
+[Tamulische Buchstabirtafel.](https://cdn.solaranamnesis.com/Ziegenbalg/malabarischen/Ziegenbalg-01.jpeg) * *
 
 *) Ein Laut zwischen _r_, _l_. und dem französischen _j_. Jeder nicht mit einem Vocal verbundene oder durch einen Punkt als vocallos bezeichnete Consonant wird mit kurzem _a_ gesprochen.
 
