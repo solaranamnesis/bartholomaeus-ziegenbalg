@@ -94,7 +94,7 @@
 
 ## [Viertes Kapitel. --- Die Aschtadikpalakas oder acht Welthüter.](#viertes-kapitel-----die-aschtadikpalakas-oder-acht-welthüter-1)
 
-## [Fünftes Kapitel. --- Äußerliche Beschaffenheit der vornehmsten Feste.](#fünftes-kapitel-----äusserliche-beschaffenheit-der-vornehmsten-feste-1)
+## [Fünftes Kapitel. --- Äußerliche Beschaffenheit der vornehmsten Feste.](#fünftes-kapitel-----äußerliche-beschaffenheit-der-vornehmsten-feste-1)
 
 ## [Sechstes Kapitel. --- Von den Opfern.](#sechstes-kapitel-----von-den-opfern-1)
 
