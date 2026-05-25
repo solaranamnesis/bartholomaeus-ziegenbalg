@@ -220,7 +220,7 @@ _மும்மூா்த்திகள் Mummūrtigel die drei größten G
 
 1\. Seine Weiber, deren zwei sind:
 
-a\. _பாா்வதி_ (பா்வதம் Berg, die Berggeborene) _Pārvati_, welche für die obengedachte Sakti anzusehen ist und in Īsvaras Pagoden unter mancherlei Namen verehrt wird, auch ihre gewissen Fest- und Fasttage hat.
+a\. _பார்வதி_ (பர்வதம் Berg, die Berggeborene) _Pārvati_, welche für die obengedachte Sakti anzusehen ist und in Īsvaras Pagoden unter mancherlei Namen verehrt wird, auch ihre gewissen Fest- und Fasttage hat.
 
 b\. _கங்கை Ganga_ (vgl. das deutsche Gang), welche eine Göttin des Wassers ist und wie eine Sirene, halb Weib halb Fisch, abgebildet wird. Ihre Figur steht in keiner Pagode, sie wird aber dadurch verehrt, dass die Menschen sich allenthalben in Flüssen waschen und dabei ihre Anbetung tun. Unter dem Wort Ganga werden alle Flüsse verstanden, besonders aber der große Ganges, dessen Wasser für das allerheiligste zur Sündenreinigung gehalten wird. Diese Ganga hat acht Jungfrauen zu ihren Gespielinnen, welches gleichfalls 8 Flüsse sind als யமுனை Yamuna, சரசுவதி Sarasvati, சிந்து Sindhu d. i. Indus, நருமதை Nerbudda, கோதாவரி Gōdāvery, காவேரி Kāvēry, மன்னேறி (?) Mannēry, கன்னிகை Kanya oder குமரி Kumari (Jungfrau, nahe bei Cap Comorin).*
 
