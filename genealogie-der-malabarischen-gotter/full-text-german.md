@@ -386,7 +386,7 @@ Zu _dir_ trägt der Selbstbeschauung Flügel. Allerhöchstes Wesen!
 Bist du, Herr, das „Wort“ zusamt „dem Sinne.“ Allerhöchstes Wesen!
 
 6\. Die im Sinnen Wort und Sinn verlieren,  
-Rührst du _an_, doch ohne zu _be_rühren. Allerhöchstes Wesen!
+Rührst du _an_, doch ohne zu *be*rühren. Allerhöchstes Wesen!
 
 7\. Tiefbeschauern zeigst du wie im Spiegel  
 Himmlisches --- du Äthers Wonnehügel. Allerhöchstes Wesen!
